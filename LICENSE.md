@@ -1,4 +1,4 @@
-# 
+# Adobe Premiere Pro for macOS automatic Plugin - time-remapping and EQ offers the most advanced Adobe Premiere Pro for macOS plugin, with time-remapping and EQ. Ideal for
 
 
 
